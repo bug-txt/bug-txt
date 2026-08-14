@@ -7,4 +7,5 @@ i may come off as harsh but it is not on purpose. i experience a lot of harsh em
   <summary align='center'>do not interact if:</summary>
   homophobic/transphobic, proshipper, under the age of 15, racist, xenophobic, endogenic system, and treat disabilities/disorders as something "silly and fun"
 </details>
+<a href='https://discord.gg/spDE3WyZhu'> my discord server </a>
 <img src='https://64.media.tumblr.com/b420b8695ea00040340a83cb8a3487c7/a85b8906fc438782-c2/s1280x1920/b427f7e34a98d52eef712a02f15a94d91c4116e3.pnj'> </p>
